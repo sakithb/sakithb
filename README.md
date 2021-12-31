@@ -9,7 +9,7 @@
 - 📫 How to reach me: 
     - Email: <pvsakith@gmail.com>
     - Twitter: [cliffniff_](https://twitter.com/cliffniff_)
-    - Discord: [cliffniff#7280](https://discordapp.com/users/828133369950240771)
+    - Discord: [cliffniff#1226](https://discordapp.com/users/921647941301719050)
 
 ### My stats
 
